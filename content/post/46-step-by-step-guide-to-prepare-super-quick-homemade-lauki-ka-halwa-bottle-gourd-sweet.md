@@ -1,0 +1,81 @@
+---
+description: "Step-by-Step Guide to Prepare Super Quick Homemade Lauki Ka Halwa/Bottle Gourd Sweet"
+title: "Step-by-Step Guide to Prepare Super Quick Homemade Lauki Ka Halwa/Bottle Gourd Sweet"
+slug: 46-step-by-step-guide-to-prepare-super-quick-homemade-lauki-ka-halwa-bottle-gourd-sweet
+date: 2020-07-12T00:23:03.297Z
+image: https://img-global.cpcdn.com/recipes/9df815600c512f40/751x532cq70/lauki-ka-halwabottle-gourd-sweet-recipe-main-photo.jpg
+thumbnail: https://img-global.cpcdn.com/recipes/9df815600c512f40/751x532cq70/lauki-ka-halwabottle-gourd-sweet-recipe-main-photo.jpg
+cover: https://img-global.cpcdn.com/recipes/9df815600c512f40/751x532cq70/lauki-ka-halwabottle-gourd-sweet-recipe-main-photo.jpg
+author: Jim Phillips
+ratingvalue: 4.8
+reviewcount: 22395
+recipeingredient:
+- "500 gms Lauki Bottle gourd"
+- "1 cup Sugar"
+- " ghee"
+- "6 cashew nuts"
+- "5 Badam Almonds"
+- " cardamon powder"
+- "1/2 cup full cream milk"
+recipeinstructions:
+- "Clean and peel the lauki.Then grate it and keep it aside."
+- "Heat ghee in pan.Fry cashew nuts and keep it aside. Then add lauki to that ghee and fry little till raw smell goes."
+- "Then add sugar and mix and cook for 10 mins.Once it is cooked add milk and cook for some more time till it becomes dry.Add the fried cashew nuts and mix well."
+- "Once it is done remove it in grease plate.Allow it to cool.Cut into pieces and serve chill."
+categories:
+- Recipe
+tags:
+- lauki
+- ka
+- halwabottle
+
+katakunci: lauki ka halwabottle 
+nutrition: 105 calories
+recipecuisine: American
+preptime: "PT38M"
+cooktime: "PT41M"
+recipeyield: "4"
+recipecategory: Dessert
+
+---
+
+
+![Lauki Ka Halwa/Bottle Gourd Sweet](https://img-global.cpcdn.com/recipes/9df815600c512f40/751x532cq70/lauki-ka-halwabottle-gourd-sweet-recipe-main-photo.jpg)
+
+Hello everybody, hope you are having an amazing day today. Today, I'm gonna show you how to make a distinctive dish, lauki ka halwa/bottle gourd sweet. It is one of my favorites. For mine, I will make it a little bit unique. This is gonna smell and look delicious.
+
+Lauki Ka Halwa/Bottle Gourd Sweet is one of the most well liked of recent trending foods on earth. It's enjoyed by millions every day. It's simple, it's quick, it tastes delicious. They're fine and they look fantastic. Lauki Ka Halwa/Bottle Gourd Sweet is something which I have loved my whole life.
+
+Lauki ka halwa - Simple Indian Sweet Recipe made with bottle gourd, sugar, ghee and milk. Lauki ka halwa makes a great after meal dessert and can be served warm or chilled. Bottle gourd is one of those veggies that&#39;s consumed often in Indian homes to make curry, sabji, stew, paratha &amp; even halwa. Lauki halwa or dudhi is a sweet Indian dessert made of bottle gourd and taste super delicious.
+
+
+To begin with this recipe, we have to prepare a few ingredients. You can have lauki ka halwa/bottle gourd sweet using 7 ingredients and 4 steps. Here is how you cook it.
+
+<!--inarticleads1-->
+
+##### The ingredients needed to make Lauki Ka Halwa/Bottle Gourd Sweet:
+
+1. Get 500 gms Lauki /Bottle gourd
+1. Make ready 1 cup Sugar
+1. Make ready  ghee
+1. Get 6 cashew nuts
+1. Take 5 Badam /Almonds
+1. Take  cardamon powder
+1. Prepare 1/2 cup full cream milk
+
+
+Just a few ingredients are needed for this dessert: lauki, milk and sugar. Lauki ka Halwa is very tasty &amp; it is served as desert in Indian cuisine. Here is the step to step method to prepare the Bottle Gourd pudding or लौकी की खीर. Bottle gourd is very widely used to prepare many dish all over the globe. 
+
+<!--inarticleads2-->
+
+##### Steps to make Lauki Ka Halwa/Bottle Gourd Sweet:
+
+1. Clean and peel the lauki.Then grate it and keep it aside.
+1. Heat ghee in pan.Fry cashew nuts and keep it aside. Then add lauki to that ghee and fry little till raw smell goes.
+1. Then add sugar and mix and cook for 10 mins.Once it is cooked add milk and cook for some more time till it becomes dry.Add the fried cashew nuts and mix well.
+1. Once it is done remove it in grease plate.Allow it to cool.Cut into pieces and serve chill.
+
+
+Here is the step to step method to prepare the Bottle Gourd pudding or लौकी की खीर. Bottle gourd is very widely used to prepare many dish all over the globe. You can prepare paratha, pakoda, curry/subzi, soup, sweets, chutney. Lauki halwa is also commonly known as dudhi halwa. Being a south Indian, I have not tasted or tried this before anytime anywhere. 
+
+So that's going to wrap this up with this exceptional food lauki ka halwa/bottle gourd sweet recipe. Thank you very much for reading. I am confident you can make this at home. There's gonna be interesting food at home recipes coming up. Remember to bookmark this page on your browser, and share it to your loved ones, friends and colleague. Thank you for reading. Go on get cooking!
